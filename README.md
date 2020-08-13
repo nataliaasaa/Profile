@@ -1,4 +1,5 @@
 # Profile
+[Lattes](http://lattes.cnpq.br/9141359451514970)
 
 ## Formação Acadêmica:
 * Física Bacharel na Universidade Estadual de Londrina (2013-2018)
