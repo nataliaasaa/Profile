@@ -1,5 +1,6 @@
 # Profile
 [Lattes](http://lattes.cnpq.br/9141359451514970)
+[LinkedIn](https://www.linkedin.com/in/natalia-sá-9119841b0)
 
 ## Formação Acadêmica:
 * Física Bacharel na Universidade Estadual de Londrina (2013-2018)
